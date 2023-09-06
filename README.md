@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **yashask888@gmail.com**
 
-- ⚡ Fun fact - **I'm an portrait artist and loves to play video games**
+- ⚡ Fun fact - **GAMER**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
